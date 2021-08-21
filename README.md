@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lunettes2ski
+- 👀 I’m interested in le dev fivem
+- 🌱 I’m currently learning  a developpeé mon serveur
+- 💞️ I’m looking to collaborate sur discord
+- 📫 How to reach me via  discord 
